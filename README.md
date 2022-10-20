@@ -1,0 +1,2 @@
+# negativementor.github.io
+Blog
